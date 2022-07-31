@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @wwmns
+- 👋 Hi, I’m aoun.
 - 👀 I’m interested in learning computer programming and hacking.
 - 🌱 I’m currently studying in college.
 - 📫 How to reach me .its so easy if u want to meet me than call me on this number +923430750618
